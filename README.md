@@ -1,1 +1,1 @@
-deep learning, computer vision, natural language processing
+deep learning enthusiast
