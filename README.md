@@ -1,1 +1,1 @@
-i like making machines learn all kinds of stuff.
+AI & deep learning enthusiast
