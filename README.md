@@ -1,1 +1,1 @@
-AI & deep learning enthusiast
+professional vibe coder
